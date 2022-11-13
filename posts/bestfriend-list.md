@@ -16,5 +16,5 @@ This isn't in any specific order:
 * Blue/Vega (Blue Apple)
 * El (ella) 
 
-> *names in brackets are discord usernames*
+###### *names in brackets are discord usernames, tags are not shown for privacy reasons*
 
