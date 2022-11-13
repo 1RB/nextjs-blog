@@ -8,13 +8,13 @@ SO here is the updated list of my best friends, if your name isn't here then you
 *(or maybe I forgot, DM me if that is the case. sorry in advance 😬)*
 
 This isn't in any specific order:
+* El (ella) 
 * Leth (Lethal)
 * Ini (Inimi)
 * Sephy (Sephtis)
 * Bred (BreadBur)
 * Space (v.)
 * Blue/Vega (Blue Apple)
-* El (ella) 
 
 ###### *names in brackets are discord usernames, tags are not shown for privacy reasons*
 
